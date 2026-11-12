@@ -1,1 +1,5 @@
 # ltrinhnet-1211
+Nguyễn Bá Minh
+24810310278
+lớp:D19CNPM3
+MSv:24810310278
